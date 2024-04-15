@@ -1,2 +1,2 @@
 # Not_uygulamasi
-Not_Uyhuamasi
+Not_Uygulamasi
